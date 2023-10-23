@@ -16,6 +16,12 @@ In 2010 he released his first song title Dance.
 In 2012 he released a song title Who Am I, till early 2016 when he released a song title For Love.
 He later released his first smash hit Cover U song which gained great international recognition. The song made him rise to the top and his still working on more hit song
 
+Education
+Bakoteh Anex Primary School, Bakoteh, The Gambia
+SOS Hermann Gmeiner Secondary School, Bakoteh, The Gambia
+Federal Polytechnic Bida, Niger State, Nigeria
+
+
 https://linktr.ee/matkiz
 <!--
 **Matkiz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
